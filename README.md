@@ -1,4 +1,4 @@
 # seminario
 sasass
-druyuikj
+druuikj
 e
